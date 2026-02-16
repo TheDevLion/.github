@@ -26,7 +26,15 @@ More than code, this space represents the intersection of friendship, purpose, a
 ![Wedding photo](https://i.imgur.com/iHSy5rt.jpg)
 
 
----
+<br>
+<br>
+<br>
+<br>
+
+<br>
+<br>
+<br>
+<br>
 
 # The Dev Lion (PT-BR)
 
